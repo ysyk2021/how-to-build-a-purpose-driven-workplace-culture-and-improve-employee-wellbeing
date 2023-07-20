@@ -35,5 +35,3 @@ Building a purpose-driven workplace culture and improving employee wellbeing is 
 Remember, a purpose-driven workplace culture and prioritizing employee wellbeing not only benefit the individuals but also contribute to the overall success and sustainability of the organization.
 
 Wishing you success in creating a purpose-driven workplace culture and improving employee wellbeing!
-
-*Note: This book aims to provide general guidance on building a purpose-driven workplace culture and improving employee wellbeing. It is essential to adapt the recommendations to comply with local laws, regulations, and organizational policies.*
