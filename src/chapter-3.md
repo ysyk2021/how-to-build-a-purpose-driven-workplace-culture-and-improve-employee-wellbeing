@@ -1,5 +1,3 @@
-Chapter 3: Identifying Your Organization's Purpose
-==================================================
 
 Identifying your organization's purpose is a critical first step in building a purpose-driven workplace culture and improving employee wellbeing. In this chapter, we will explore the importance of a clear organizational purpose and strategies for identifying and aligning this purpose with employee needs and aspirations.
 

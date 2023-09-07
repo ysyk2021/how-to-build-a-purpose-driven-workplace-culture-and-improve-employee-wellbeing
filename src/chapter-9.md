@@ -1,5 +1,3 @@
-Chapter 9: Leadership and a Purpose-Driven Workplace Culture
-============================================================
 
 Leadership plays a crucial role in building and sustaining a purpose-driven workplace culture. In this chapter, we'll explore the importance of leadership in promoting a purpose-driven workplace culture and strategies for developing effective leadership skills.
 

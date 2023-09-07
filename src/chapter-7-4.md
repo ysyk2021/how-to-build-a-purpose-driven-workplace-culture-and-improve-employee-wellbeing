@@ -1,5 +1,3 @@
-Making Data-Driven Decisions for Improvement
-=========================================================================================
 
 In a purpose-driven workplace culture, making data-driven decisions is essential for continuously improving outcomes. This involves regularly measuring and evaluating key performance indicators (KPIs) and using that data to make informed decisions about how to improve organizational success. In this chapter, we will discuss strategies for making data-driven decisions for improvement.
 

@@ -1,5 +1,3 @@
-Overview of the Book's Purpose and Objectives
-======================================================================
 
 The purpose of this book is to provide guidance for building a purpose-driven workplace culture that improves employee wellbeing and drives organizational success. In this chapter, we'll provide an overview of the book's objectives.
 

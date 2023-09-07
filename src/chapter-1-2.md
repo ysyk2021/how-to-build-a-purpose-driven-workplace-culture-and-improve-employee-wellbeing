@@ -1,6 +1,3 @@
-# The Importance of a Purpose-Driven Workplace Culture for Employee Wellbeing
-
-## Introduction
 
 In today's fast-paced and competitive business environment, organizations are realizing the significance of creating a purpose-driven workplace culture. This culture not only enhances employee engagement and productivity but also improves their overall wellbeing. In this chapter, we will explore why building a purpose-driven workplace culture is crucial for fostering employee wellbeing.
 

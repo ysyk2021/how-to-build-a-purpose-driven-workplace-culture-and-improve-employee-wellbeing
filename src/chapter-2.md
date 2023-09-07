@@ -1,5 +1,3 @@
-Chapter 2: Defining a Purpose-Driven Workplace Culture
-======================================================
 
 What is a Purpose-Driven Workplace Culture?
 -------------------------------------------

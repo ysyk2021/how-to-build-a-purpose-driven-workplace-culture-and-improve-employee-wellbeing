@@ -1,5 +1,3 @@
-Developing a Mission Statement and Values
-=============================================================================================
 
 In a purpose-driven workplace culture, it's important to have a clear understanding of the organization's purpose. This involves developing a mission statement and values that are aligned with the organization's vision and goals. In this chapter, we will discuss strategies for identifying your organization's purpose by developing a mission statement and values.
 

@@ -1,5 +1,3 @@
-Chapter 6: Encouraging Learning and Growth
-==========================================
 
 Encouraging learning and growth is a key component of building a purpose-driven workplace culture and improving employee wellbeing. In this chapter, we will explore the role of learning and growth in a purpose-driven workplace culture, and strategies for investing in employee development and promoting continuous improvement.
 

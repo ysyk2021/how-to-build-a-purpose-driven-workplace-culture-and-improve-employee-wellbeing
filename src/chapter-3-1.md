@@ -1,5 +1,3 @@
-Understanding the Importance of a Clear Organizational Purpose
-==================================================================================================================
 
 Identifying your organization's purpose is essential for building a purpose-driven workplace culture and improving employee wellbeing. In this chapter, we'll explore the importance of a clear organizational purpose and how to identify it.
 

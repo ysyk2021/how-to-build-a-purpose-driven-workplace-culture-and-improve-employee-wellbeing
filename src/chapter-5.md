@@ -1,5 +1,3 @@
-Chapter 5: Supporting Employee Wellbeing
-========================================
 
 Employee wellbeing is essential for a healthy and productive workplace. In this chapter, we'll explore the impact of a purpose-driven workplace culture on employee wellbeing and strategies for supporting physical, mental, and emotional wellbeing.
 

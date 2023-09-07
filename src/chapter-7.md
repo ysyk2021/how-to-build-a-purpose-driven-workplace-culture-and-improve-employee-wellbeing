@@ -1,5 +1,3 @@
-Chapter 7: Measuring and Evaluating Success
-===========================================
 
 Measuring and evaluating success is essential for building a purpose-driven workplace culture and improving employee wellbeing. In this chapter, we will explore the importance of measuring and evaluating the effectiveness of a purpose-driven workplace culture, and strategies for identifying key performance indicators, collecting and analyzing data, and making data-driven decisions for improvement.
 

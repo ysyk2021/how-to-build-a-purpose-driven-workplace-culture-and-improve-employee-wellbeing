@@ -1,5 +1,3 @@
-Understanding the Key Elements of a Purpose-Driven Workplace Culture
-=============================================================================================
 
 A purpose-driven workplace culture is essential for improving employee wellbeing and driving organizational success. In this book, we'll explore the key elements of a purpose-driven workplace culture and how to cultivate it within your organization.
 

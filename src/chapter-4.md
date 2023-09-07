@@ -1,5 +1,3 @@
-Chapter 4: Fostering a Sense of Meaning and Belonging
-=====================================================
 
 A purpose-driven workplace culture is one in which employees feel a sense of meaning and belonging. In this chapter, we'll explore the importance of meaning and belonging, how to create a culture of inclusion and diversity, ways to empower employees to make a meaningful impact, and strategies for building authentic relationships and trust.
 

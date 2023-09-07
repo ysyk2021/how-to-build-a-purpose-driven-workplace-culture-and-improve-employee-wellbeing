@@ -1,5 +1,3 @@
-Building a Culture of Accountability and Ownership
-================================================================================================================
 
 Leadership plays a crucial role in building and sustaining a purpose-driven workplace culture. In this chapter, we'll explore the importance of building a culture of accountability and ownership and provide guidance on how leaders can foster such a culture.
 

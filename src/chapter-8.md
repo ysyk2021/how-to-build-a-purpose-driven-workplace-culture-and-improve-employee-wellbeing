@@ -1,5 +1,3 @@
-Chapter 8: Navigating Challenges to a Purpose-Driven Workplace Culture
-======================================================================
 
 Building a purpose-driven workplace culture and improving employee wellbeing is not without its challenges. In this chapter, we will explore common challenges to a purpose-driven workplace culture and strategies for overcoming these challenges.
 
