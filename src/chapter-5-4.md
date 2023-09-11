@@ -1,5 +1,4 @@
-Chapter 9: Providing Resources and Support for Wellbeing
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a purpose-driven workplace culture goes hand in hand with prioritizing employee wellbeing. When employees feel supported and have access to resources that enhance their physical, mental, and emotional health, they are more likely to thrive both personally and professionally. In this chapter, we explore strategies for providing resources and support for employee wellbeing.
 

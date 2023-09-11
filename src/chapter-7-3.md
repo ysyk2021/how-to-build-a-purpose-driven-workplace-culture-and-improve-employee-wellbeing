@@ -1,5 +1,4 @@
-Chapter 12: Collecting and Analyzing Data
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collecting and analyzing data is essential for building a purpose-driven workplace culture and improving employee wellbeing. In this chapter, we explore the importance of data collection, different methods of data collection, and strategies for analyzing and utilizing the collected data effectively.
 

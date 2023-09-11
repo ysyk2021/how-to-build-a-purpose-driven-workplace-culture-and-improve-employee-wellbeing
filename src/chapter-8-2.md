@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Overcoming Challenges and Maintaining a Purpose-Driven Workplace Culture
-===================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building and maintaining a purpose-driven workplace culture comes with its own set of challenges. In this chapter, we will explore some effective strategies to overcome these challenges and sustain a purpose-driven culture while improving employee well-being.
 

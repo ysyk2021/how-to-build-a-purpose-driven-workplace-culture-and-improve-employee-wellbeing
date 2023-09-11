@@ -1,5 +1,4 @@
-Chapter 6: Common Misconceptions about Purpose-Driven Workplace Cultures
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Misconceptions can hinder our understanding and implementation of purpose-driven workplace cultures. In this chapter, we address some common misconceptions that may arise when building a purpose-driven workplace culture, debunking them to provide a more accurate understanding.
 

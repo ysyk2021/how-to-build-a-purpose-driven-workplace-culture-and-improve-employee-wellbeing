@@ -1,5 +1,4 @@
-Chapter 8: Encouraging Innovation and Creativity
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a purpose-driven workplace culture, innovation and creativity play a crucial role in driving growth, adaptability, and success. When employees are encouraged to think outside the box, explore new ideas, and take calculated risks, they become catalysts for innovation. In this chapter, we will explore strategies for fostering innovation and creativity within an organization.
 

@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Supporting Physical, Mental, and Emotional Wellbeing
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Supporting the physical, mental, and emotional wellbeing of employees is crucial for creating a purpose-driven workplace culture. In this chapter, we explore strategies and practices that organizations can implement to foster a holistic approach to employee wellbeing.
 

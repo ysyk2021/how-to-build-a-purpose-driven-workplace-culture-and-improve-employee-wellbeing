@@ -1,5 +1,4 @@
-Chapter 11: Promoting Continuous Learning and Improvement
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Continuous learning and improvement are crucial for creating a thriving workplace culture and enhancing employee wellbeing. This chapter explores the importance of fostering a culture of learning, provides strategies for promoting continuous improvement, and highlights the benefits for both individuals and organizations.
 

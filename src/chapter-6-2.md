@@ -1,5 +1,4 @@
-Chapter 9: Investing in Employee Development and Training
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Investing in employee development and training is a vital component of building a purpose-driven workplace culture and improving employee wellbeing. When organizations prioritize the growth and learning of their employees, they create an environment that fosters innovation, engagement, and long-term success. In this chapter, we will explore the importance of investing in employee development and training and provide strategies for implementing effective programs.
 

@@ -1,5 +1,4 @@
-Chapter 8: Aligning Your Organizational Purpose with Employee Needs and Aspirations
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Aligning the organizational purpose with the needs and aspirations of employees is crucial for building a strong and purpose-driven workplace culture. When employees feel connected to the organization's purpose and see how it aligns with their own values and goals, they are more engaged, motivated, and committed. In this chapter, we explore strategies for aligning your organizational purpose with the needs and aspirations of your employees.
 

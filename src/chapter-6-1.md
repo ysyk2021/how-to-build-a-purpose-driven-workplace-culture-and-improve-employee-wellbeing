@@ -1,5 +1,4 @@
-Chapter 9: The Role of Learning and Growth in a Purpose-Driven Workplace Culture
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a purpose-driven workplace culture, learning and growth are essential components that contribute to the overall employee well-being and organizational success. This chapter explores the importance of continuous learning, personal development, and professional growth in fostering a purpose-driven workplace culture.
 

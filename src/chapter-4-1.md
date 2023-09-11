@@ -1,5 +1,4 @@
-Chapter 7: The Importance of Meaning and Belonging in a Purpose-Driven Workplace Culture
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a purpose-driven workplace culture, cultivating a sense of meaning and belonging is paramount. When employees feel connected to the organization's purpose and values, and when they experience a genuine sense of belonging, their engagement, satisfaction, and overall wellbeing soar. In this chapter, we will explore the importance of meaning and belonging in creating a purpose-driven workplace culture and providing strategies for fostering them.
 

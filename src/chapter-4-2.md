@@ -1,5 +1,4 @@
-Chapter 10: Creating a Culture of Inclusion and Diversity
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's globalized and interconnected world, creating a culture of inclusion and diversity is crucial for building a purpose-driven workplace culture and improving employee wellbeing. This chapter explores the importance of fostering an inclusive and diverse environment and provides strategies for organizations to promote equality, respect, and collaboration.
 

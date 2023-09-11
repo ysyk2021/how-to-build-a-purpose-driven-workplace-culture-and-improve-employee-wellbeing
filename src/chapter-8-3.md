@@ -1,5 +1,4 @@
-Chapter 11: Addressing Employee Concerns and Feedback
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Addressing employee concerns and feedback is a crucial aspect of building a purpose-driven workplace culture and improving employee well-being. In this chapter, we will explore effective strategies for creating an environment where employees feel comfortable expressing their concerns, providing feedback, and ensuring that their voices are heard.
 

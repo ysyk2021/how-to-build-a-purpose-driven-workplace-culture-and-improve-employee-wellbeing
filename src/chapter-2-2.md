@@ -1,5 +1,4 @@
-Chapter 7: The Benefits of a Purpose-Driven Workplace Culture for Employees and Organizations
-=============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A purpose-driven workplace culture brings numerous benefits for both employees and organizations. In this chapter, we explore the positive outcomes that arise when organizations prioritize purpose and create an environment where employees can thrive.
 

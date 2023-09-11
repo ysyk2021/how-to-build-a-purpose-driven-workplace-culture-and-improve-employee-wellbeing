@@ -1,5 +1,4 @@
-Chapter 8: Creating an Environment that Encourages Work-Life Balance
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving work-life balance is essential for employee well-being and productivity. In this chapter, we explore strategies and practices to create a purpose-driven workplace culture that supports and encourages work-life balance.
 

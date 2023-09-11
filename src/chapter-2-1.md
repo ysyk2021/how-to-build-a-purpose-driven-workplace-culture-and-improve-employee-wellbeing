@@ -1,5 +1,4 @@
-Chapter 3: What is a Purpose-Driven Workplace Culture?
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A purpose-driven workplace culture is centered around a shared mission, vision, and values that guide the organization and its employees. This chapter explores the concept of a purpose-driven workplace culture, its key components, and the benefits it brings to both employees and organizations.
 

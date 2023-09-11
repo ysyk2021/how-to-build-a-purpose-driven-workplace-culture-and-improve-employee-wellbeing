@@ -1,5 +1,4 @@
-Chapter 11: Identifying Key Performance Indicators for Success
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Identifying key performance indicators (KPIs) is crucial for measuring and assessing the success of a purpose-driven workplace culture. In this chapter, we explore how organizations can identify and track KPIs to evaluate the effectiveness of their efforts in building a purpose-driven culture and improving employee wellbeing.
 

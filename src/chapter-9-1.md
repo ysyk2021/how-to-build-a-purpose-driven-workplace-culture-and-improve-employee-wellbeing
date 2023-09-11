@@ -1,5 +1,4 @@
-Chapter 10: The Role of Leadership in Building and Sustaining a Purpose-Driven Workplace Culture
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership plays a vital role in shaping and sustaining a purpose-driven workplace culture. When leaders actively promote and embody the organization's purpose, they inspire and motivate employees to connect with that purpose and contribute their best work. In this chapter, we explore the key responsibilities and strategies for leadership in building and sustaining a purpose-driven workplace culture.
 

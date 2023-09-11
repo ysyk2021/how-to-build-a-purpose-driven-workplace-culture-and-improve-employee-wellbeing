@@ -1,5 +1,4 @@
-Chapter 12: The Impact of a Purpose-Driven Workplace Culture on Employee Wellbeing
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A purpose-driven workplace culture has a profound impact on employee wellbeing. When employees are connected to a greater sense of purpose and meaning in their work, they experience higher levels of satisfaction, engagement, and overall wellbeing. In this chapter, we explore the various ways in which a purpose-driven culture positively influences employee wellbeing.
 

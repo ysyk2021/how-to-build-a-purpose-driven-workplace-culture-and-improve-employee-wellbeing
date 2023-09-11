@@ -1,5 +1,4 @@
-Chapter 9: The Importance of Measuring and Evaluating the Effectiveness of a Purpose-Driven Workplace Culture
-=============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Measuring and evaluating the effectiveness of a purpose-driven workplace culture is essential for continuous improvement and ensuring the desired outcomes are being achieved. In this chapter, we explore the importance of measuring and evaluating the impact of a purpose-driven workplace culture on employee well-being and overall organizational performance.
 
